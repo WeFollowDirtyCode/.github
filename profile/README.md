@@ -1,1 +1,1 @@
-## WE Follow Dirty Code
+## We Follow Dirty Code
